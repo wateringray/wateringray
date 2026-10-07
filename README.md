@@ -17,7 +17,7 @@
 - I am ***EXTREMELY*** shy when meeting people, or talking to people because of the previous statement, I will try my best to talk to you if you whisper but it's not a guarantee.
 .
 .
-- [ ***DNI if your yume is:*** ]
+- [ ‼️ ***DNI if your yume is:*** ‼️]
 - Jason Dean(HEATHERS:THEMUSICAL)
 - Mydei(HSR)
 - Whitney (DOL)
